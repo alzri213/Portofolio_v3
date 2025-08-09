@@ -76,5 +76,5 @@ Your support mePayns a lot and helps me continue building open-source projects. 
 
 ## 🌐 Social Media
 
-* 📸 Instagram: [@zain.ahmadf](https://www.instagram.com/zreekx)
-* 🎥 TikTok: [@zainahmad.f](https://www.tiktok.com/@alzri_nocounter)
+* 📸 Instagram: [@alzri](https://www.instagram.com/zreekx)
+* 🎥 TikTok: [@alfan](https://www.tiktok.com/@alzri_nocounter)
